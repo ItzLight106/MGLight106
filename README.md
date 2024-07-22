@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning NEXTJS 
 - 💞️ I’m looking to collaborate on Project 
 - 📫 Email: workwithlight106@gmail.com
-- 😄 Pronouns: he/him
+- 😄 My all social: https://linktr.ee/MGLight106
+- 
 - ⚡ hobby: Gaming 
 
 <!---
