@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning NEXTJS 
 - 💞️ I’m looking to collaborate on Project 
 - 📫 Email: workwithlight106@gmail.com
-- 😄 My all social: https://linktr.ee/MGLight106
+- 😄 My all social: https://linktr.ee/ItzLight106
 - ⚡ hobby: Gaming 
 
 <!---
